@@ -1,0 +1,1 @@
+# Duplicate-Manager-Pro-for-Mac
